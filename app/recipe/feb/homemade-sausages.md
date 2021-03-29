@@ -37,4 +37,5 @@ For a healthier version, substitute ground turkey meat for the pork, which will 
 
 # Question
 Is There a Difference Between Breakfast Sausage Patties and Links?
+
 In addition to the differences in shape, there are other variations between breakfast patties and links. Some links have a casing while patties do not, and patties are often more strongly flavored compared to the links.
